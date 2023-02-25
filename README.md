@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **ishwaripawar661@gmail.com**
 
-- ⚡ Fun fact **I think I am at good at Creativity**
+- ⚡ Fun fact **I think I am good at Creativity**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
